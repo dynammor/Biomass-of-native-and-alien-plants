@@ -1,0 +1,1 @@
+We conducted greenhouse experiments using two alien and two native herbaceous plants. To determine the effects of soil nutrient heterogeneity, drought and competition on native and alien plants, the shoot biomass and root biomass of plants were measured. The results of this study will be published in AoB PLANTS in the coming weeks.
